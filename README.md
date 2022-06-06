@@ -4,6 +4,6 @@ I’m currently learning 🌱 parenting 👪
 
 
 📫 you can reach me by Contact
-- 👤 Profile: linkedin.com/in/vysyarajusaimanoj
+- 👤 Profile: www.linkedin.com/in/vysyarajusaimanoj
 - 📱 Phone: 9963530635 (Mobile)
 - 📧 Email: vysyarajusaimanoj@outlook.com
