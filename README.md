@@ -3,7 +3,7 @@ I’m interested 👀 in coding, gaming, watching Anime
 I’m currently learning 🌱 parenting 👪
 
 
-📫 you can reach me by Contact
+📫 you can reach me by
 - 👤 Profile: www.linkedin.com/in/vysyarajusaimanoj
 - 📱 Phone: 9963530635 (Mobile)
 - 📧 Email: vysyarajusaimanoj@outlook.com
